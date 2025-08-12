@@ -26,3 +26,4 @@ Connect with Me📨
 * [Email](mailto:lawrencetaylor2nd@gmail.com)
 
   I'm looking forward to collaborating on projects that are at the intersection of technology and social good.  Let's connect!🌍
+
